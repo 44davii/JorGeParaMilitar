@@ -41,7 +41,7 @@ Reservamo-nos o direito de modificar estes Termos de Serviço a qualquer momento
 ## 7. Contato
 
 Se você tiver alguma dúvida sobre estes Termos de Serviço, por favor, entre em contato conosco através do Discord.
-
+ID: ZXWFUCK
 ---
 
 ### Última atualização: 2025-03-05
